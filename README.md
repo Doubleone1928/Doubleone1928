@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Doubleone1928
 - 👀 I’m interested in networking and cybersecurity 
-- 🌱 I’m currently learning Bachelors o science in Ifnormation Technology
+- 🌱 I’m currently doing degree in  Bachelors of science in Information Technology
 - 💞️ I’m looking to collaborate on cybersecurity and networking 
 - 📫 How to reach me lakiperez123@gmail.com 
 - 😄 Pronouns: yeet
